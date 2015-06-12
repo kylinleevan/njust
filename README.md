@@ -1,0 +1,2 @@
+# njust
+My college
